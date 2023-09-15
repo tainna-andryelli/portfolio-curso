@@ -8,4 +8,4 @@
 
 ## Feito por:
 ### Tainná Ribeiro
-* LinkedIn: www.linkedin.com/in/tainna-andryelli-ribeiro
+* LinkedIn: www.linkedin.com/in/tainna
